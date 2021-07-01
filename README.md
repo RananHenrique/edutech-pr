@@ -1,1 +1,1 @@
-# edutech-pr
+# jornal de Londrina e Brasil
