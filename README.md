@@ -1,1 +1,1 @@
-# jornal de Londrina e Brasil
+# jornal do covid
